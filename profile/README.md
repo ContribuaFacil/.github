@@ -22,6 +22,4 @@ Para mais informações sobre a Contribua Fácil ou para entrar em contato conos
 
 Agradecemos por seu interesse na Contribua Fácil e por apoiar nossa missão de tornar o mundo um lugar melhor através da doação.
 
----
 
-Se precisar de mais alguma coisa ou de ajustes específicos, é só me avisar!
